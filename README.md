@@ -1,3 +1,3 @@
-# Cyber Security
+# Cyber security
 
-Khajornyuth Tonpuban
+Khajornyuth Tonpuban (TaNam)
